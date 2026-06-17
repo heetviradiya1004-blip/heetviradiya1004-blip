@@ -1,5 +1,5 @@
 
-# Hi there, I'm [Your Name]! 👋
+# Hi there, I'm [Heet Viradiya]! 👋
 ### 🚀 Full-Stack Website Developer | Building things for the web
 
 <p align="left">
